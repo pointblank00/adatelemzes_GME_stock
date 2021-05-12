@@ -1,1 +1,0 @@
-# adatelemzes_GME_stock
